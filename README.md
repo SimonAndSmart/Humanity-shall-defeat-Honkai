@@ -1,2 +1,2 @@
-# Humanity-shall-defeat-Honkai
+# Humanity shall defeat Honkai
 No matter what it takes ...
